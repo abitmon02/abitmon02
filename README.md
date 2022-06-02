@@ -4,7 +4,7 @@
 <br>
 <br>
 
-<p><img align="center" src="https://www.mygo.ge/uploads/blog/1584023795.jpg" alt="adam-pw" /></p>
+<p><img align="center" src="https://i.gifer.com/9SRo.gif" alt="adam-pw" /></p>
 <br>
 <br>
 
